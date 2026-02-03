@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an athlete <br>I am an artist
+
 
 
 ## 🌐 Socials:
